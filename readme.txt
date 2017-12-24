@@ -6,6 +6,4 @@ Git is free.
 2333333333
 你是不是傻hahahhahahha
 ????????
-
-
-jhdfsjfjdshfkhdkfhkjahjkdhasiudiodi即将开始的房间看
+即将开始的房间看
